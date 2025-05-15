@@ -1,2 +1,2 @@
 olá, meu nome é Nathalia Naida
-Seja Ben vindo ao meu perfil.
+Seja Bem vindo ao meu perfil.
